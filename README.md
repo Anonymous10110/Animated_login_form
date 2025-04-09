@@ -5,3 +5,4 @@ follow me on!
 
 https://www.facebook.com/torenterendon/
 https://www.instagram.com/donren17/#
+https://x.com/rendontorente
